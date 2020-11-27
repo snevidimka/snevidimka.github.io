@@ -1,2 +1,0 @@
-# snevidimka.github.io
-RUSAUTO
